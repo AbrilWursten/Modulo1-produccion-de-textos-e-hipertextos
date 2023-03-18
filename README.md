@@ -19,7 +19,7 @@ Antes del intercambio, los estudiantes deben prepararse adecuadamente, incluyend
 
 Después del intercambio, los estudiantes deben prepararse para el regreso a casa, incluyendo la adaptación a su cultura y ambiente de origen y la integración de sus nuevas experiencias y habilidades en su vida cotidiana. Los intercambios estudiantiles pueden tener un impacto positivo duradero en la vida de los estudiantes, como mejorar su perspectiva global, su capacidad de liderazgo y sus perspectivas de carrera.
 
-En resumen, los intercambios estudiantiles son una oportunidad invaluable para los estudiantes que buscan mejorar su educación y ampliar sus horizontes culturales. Los intercambios estudiantiles pueden proporcionar una experiencia inolvidable que mejora la educación, las habilidades lingüísticas, la comprensión cultural y las perspectivas de carrera de los estudiantes. 
+En resumen, los intercambios estudiantiles son una oportunidad invaluable para los estudiantes que buscan mejorar su educación y ampliar sus horizontes culturales. Los intercambios estudiantiles pueden proporcionar una experiencia inolvidable que mejora la educación, las habilidades lingüísticas, la comprensión cultural y las perspectivas de carrera de los estudiantes.  
  ### 2. Beneficios Educativos
 Los intercambios culturales son una oportunidad única para los estudiantes de ampliar su educación más allá del aula y experimentar la vida en otro país. Estos intercambios pueden ser de corta o larga duración y se centran en la inmersión en una cultura diferente, lo que puede tener muchos beneficios educativos para los estudiantes. Algunos de los principales beneficios educativos de los intercambios:
 
@@ -127,4 +127,4 @@ En conclusión, los intercambios estudiantiles son una experiencia única e enri
 
 Además, los beneficios de los intercambios estudiantiles no se limitan al ámbito académico, sino que se extienden al mercado laboral globalizado de hoy en día, donde las habilidades lingüísticas, interculturales y la experiencia internacional son altamente valoradas.
 
-Desde un punto de vista objetivo, los intercambios estudiantiles pueden ser una experiencia muy valiosa para los estudiantes, y es importante que las instituciones educativas y los gobiernos sigan apoyando estos programas para brindar a los estu-diantes la oportunidad de tener una experiencia internacional única y enriquecedora. 
+Desde un punto de vista objetivo, los intercambios estudiantiles pueden ser una experiencia muy valiosa para los estudiantes, y es importante que las instituciones educativas y los gobiernos sigan apoyando estos programas para brindar a los estu-diantes la oportunidad de tener una experiencia internacional única y enriquecedora. <p/>  
