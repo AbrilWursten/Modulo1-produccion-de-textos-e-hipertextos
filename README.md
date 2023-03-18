@@ -1,4 +1,4 @@
-  <center> ## Intercambios Estudiantiles </center>
+ ## <center> Intercambios Estudiantiles </center>
   ### Beneficios y Experiencias
   Maria Paz Pucciarelli, Juan Marcos Ferrero, Amandine Caffin, Milagros Bravo, Abril Wursten
   
