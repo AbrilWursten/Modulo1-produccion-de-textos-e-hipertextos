@@ -85,6 +85,7 @@ Los costos y financiamiento de intercambios estudiantiles pueden variar según l
 
  ### 6. Regreso a casa
 <p align="justify">El regreso a casa después de un intercambio estudiantil puede ser un momento emo-cionalmente desafiante para muchos estudiantes. Después de haber pasado varios meses o incluso años en otro país, regresar a casa puede ser un choque cultural y emocional. Algunos consejos para ayudar a los estudiantes a hacer una transición suave de vuelta a casa después de su experiencia de intercambio estudiantil:
+ 
 - **Tener expectativas realistas:** Es importante que los estudiantes tengan expectati-vas realistas sobre su regreso a casa. La vida puede haber continuado mientras esta-ban fuera, y puede llevar tiempo para volver a adaptarse a su entorno anterior.
 
 - **Tomarse tiempo para adaptarse:** Los estudiantes pueden sentirse abrumados al principio al regresar a casa. Es importante que se den tiempo para adaptarse a su entorno anterior, especialmente si experimentan choque cultural inverso. Los estu-diantes deben ser pacientes consigo mismos y buscar apoyo de amigos y familiares.
