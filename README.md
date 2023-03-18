@@ -65,7 +65,8 @@ Los costos y financiamiento de intercambios estudiantiles pueden variar según l
 
 ### 5. Preparación para intercambio
 <p align="justify">Prepararse para un intercambio estudiantil es una parte importante del proceso para garantizar que el estudiante tenga una experiencia exitosa. A continuación, se presen-tan algunas sugerencias para prepararse para un intercambio estudiantil:
-Investigar el país de destino: Antes de partir, es importante investigar el país de destino para aprender más sobre su cultura, historia, costumbres y tradiciones. Esto puede ayudar al estudiante a sentirse más cómodo y preparado para la experiencia.
+
+ - **Investigar el país de destino:** Antes de partir, es importante investigar el país de destino para aprender más sobre su cultura, historia, costumbres y tradiciones. Esto puede ayudar al estudiante a sentirse más cómodo y preparado para la experiencia.
 
 - **Aprender el idioma:** Si el idioma del país de destino es diferente al idioma nativo del estudiante, es importante que el estudiante aprenda al menos lo básico del idio-ma. Esto ayudará al estudiante a comunicarse mejor con los habitantes locales y a desenvolverse en situaciones cotidianas.
 
