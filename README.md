@@ -20,6 +20,7 @@
 <p align="justify">Después del intercambio, los estudiantes deben prepararse para el regreso a casa, incluyendo la adaptación a su cultura y ambiente de origen y la integración de sus nuevas experiencias y habilidades en su vida cotidiana. Los intercambios estudiantiles pueden tener un impacto positivo duradero en la vida de los estudiantes, como mejorar su perspectiva global, su capacidad de liderazgo y sus perspectivas de carrera.
 
 <p align="justify">En resumen, los intercambios estudiantiles son una oportunidad invaluable para los estudiantes que buscan mejorar su educación y ampliar sus horizontes culturales. Los intercambios estudiantiles pueden proporcionar una experiencia inolvidable que mejora la educación, las habilidades lingüísticas, la comprensión cultural y las perspectivas de carrera de los estudiantes.  
+ ![interca-1200x628](C:\Users\MegaTecnologia\Desktop\interca-1200x628.jpg)
  
  ### 2. Beneficios Educativos
 <p align="justify">Los intercambios culturales son una oportunidad única para los estudiantes de ampliar su educación más allá del aula y experimentar la vida en otro país. Estos intercambios pueden ser de corta o larga duración y se centran en la inmersión en una cultura diferente, lo que puede tener muchos beneficios educativos para los estudiantes. Algunos de los principales beneficios educativos de los intercambios:
