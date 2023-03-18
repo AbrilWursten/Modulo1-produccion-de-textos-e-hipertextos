@@ -4,7 +4,7 @@
   <p align="center"> Maria Paz Pucciarelli, Juan Marcos Ferrero, Amandine Caffin, Milagros Bravo, Abril Wursten <p/> 
  
   
- <p align="center">  <mariapazpucciareli99@gmail.com> – <juanferrerocpbm@gmail.com> – <amandine.caffin@gmail.com> - <milibravo2911@gmail.com> - <abrilwursten99@gmail.com> <p/> 
+<mariapazpucciareli99@gmail.com> – <juanferrerocpbm@gmail.com> – <amandine.caffin@gmail.com> - <milibravo2911@gmail.com> - <abrilwursten99@gmail.com> 
  
  ### 1. Introducción
 Los intercambios estudiantiles son una experiencia única y valiosa para los estudiantes que buscan mejorar su educación y ampliar sus horizontes culturales. Estos programas ofrecen a los estudiantes la oportunidad de estudiar en una institución educativa en otro país durante un período determinado de tiempo. Los intercambios estudiantiles pueden tener una duración que varía desde unas pocas semanas hasta un año académico completo o más.
