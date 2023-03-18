@@ -74,7 +74,7 @@ Investigar el país de destino: Antes de partir, es importante investigar el pa�
 - **Prepararse para el cambio cultural:** Los estudiantes deben prepararse para el cambio cultural que experimentarán en el país de destino. Deben ser respetuosos con la cultura local y estar abiertos a nuevas experiencias y formas de pensar.
 
 En resumen, prepararse adecuadamente para un intercambio estudiantil es clave para garantizar una experiencia exitosa. Los estudiantes deben investigar el país de destino, aprender el idioma, obtener los documentos necesarios, comunicarse con la institución educativa, empacar adecuadamente y prepararse para el cambio cultural. Al hacerlo, pueden tener una experiencia educativa enriquecedora y transformadora.
-### Regreso a casa
+### 6. Regreso a casa
 El regreso a casa después de un intercambio estudiantil puede ser un momento emo-cionalmente desafiante para muchos estudiantes. Después de haber pasado varios meses o incluso años en otro país, regresar a casa puede ser un choque cultural y emocional. Algunos consejos para ayudar a los estudiantes a hacer una transición suave de vuelta a casa después de su experiencia de intercambio estudiantil:
 - **Tener expectativas realistas:** Es importante que los estudiantes tengan expectati-vas realistas sobre su regreso a casa. La vida puede haber continuado mientras esta-ban fuera, y puede llevar tiempo para volver a adaptarse a su entorno anterior.
 
@@ -90,3 +90,7 @@ El regreso a casa después de un intercambio estudiantil puede ser un momento em
 
 El regreso a casa después de un intercambio estudiantil puede ser desafiante, pero también puede ser una oportunidad para crecer y reflexionar sobre la experiencia vivida. Al tomarse el tiempo para adaptarse, reflexionar sobre la experiencia y man-tenerse conectados con amigos en el extranjero, los estudiantes pueden hacer una transición suave de vuelta a casa y continuar su desarrollo personal y educativo.
 
+### 7. Impacto a largo plazo
+Los intercambios estudiantiles pueden tener un impacto a largo plazo significativo en la vida y en la carrera de un estudiante
+
+- **Mejora en las habilidades lingüísticas:** Los estudiantes que participan en inter-cambios estudiantiles tienen la oportunidad de sumergirse en una nueva lengua y cultura. Esto puede ayudar a mejorar sus habilidades lingüísticas y a tener una mejor comprensión de la cultura y la sociedad de ese país.
