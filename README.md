@@ -77,7 +77,8 @@ Investigar el país de destino: Antes de partir, es importante investigar el pa�
 - **Prepararse para el cambio cultural:** Los estudiantes deben prepararse para el cambio cultural que experimentarán en el país de destino. Deben ser respetuosos con la cultura local y estar abiertos a nuevas experiencias y formas de pensar.
 
 <p align="justify">En resumen, prepararse adecuadamente para un intercambio estudiantil es clave para garantizar una experiencia exitosa. Los estudiantes deben investigar el país de destino, aprender el idioma, obtener los documentos necesarios, comunicarse con la institución educativa, empacar adecuadamente y prepararse para el cambio cultural. Al hacerlo, pueden tener una experiencia educativa enriquecedora y transformadora.
-### 6. Regreso a casa
+
+ ### 6. Regreso a casa
 <p align="justify">El regreso a casa después de un intercambio estudiantil puede ser un momento emo-cionalmente desafiante para muchos estudiantes. Después de haber pasado varios meses o incluso años en otro país, regresar a casa puede ser un choque cultural y emocional. Algunos consejos para ayudar a los estudiantes a hacer una transición suave de vuelta a casa después de su experiencia de intercambio estudiantil:
 - **Tener expectativas realistas:** Es importante que los estudiantes tengan expectati-vas realistas sobre su regreso a casa. La vida puede haber continuado mientras esta-ban fuera, y puede llevar tiempo para volver a adaptarse a su entorno anterior.
 
@@ -122,7 +123,8 @@ Habilidades interculturales: Los intercambios estudiantiles permiten a los estu-
 - **Flexibilidad y adaptabilidad:** Participar en un intercambio estudiantil requiere una gran cantidad de flexibilidad y adaptabilidad, ya que los estudiantes tienen que adaptarse a un nuevo entorno, un nuevo sistema educativo y, a menudo, un nuevo idioma. Estas habilidades son muy valoradas por los empleadores, ya que muestran que el estudiante puede trabajar en entornos de cambio constante y tiene la capaci-dad de aprender rápidamente.
 
 <p align="justify">En resumen, los intercambios estudiantiles pueden proporcionar a los estudiantes una serie de beneficios laborales, incluyendo el desarrollo de habilidades lingüísticas e interculturales, la experiencia internacional, la construcción de redes profesionales, y la flexibilidad y adaptabilidad. Todos estos beneficios pueden ayudar a los estudian-tes a tener éxito en el mercado laboral globalizado de hoy en día.
-### 9. Conclusiones
+
+ ### 9. Conclusiones
 <p align="justify">En conclusión, los intercambios estudiantiles son una experiencia única e enrique-cedora para los estudiantes. No solo les brindan la oportunidad de mejorar su cono-cimiento de una lengua extranjera y desarrollar habilidades interculturales, sino que también les permiten tener una experiencia internacional valiosa y construir redes profesionales internacionales.
 
 <p align="justify">Además, los beneficios de los intercambios estudiantiles no se limitan al ámbito académico, sino que se extienden al mercado laboral globalizado de hoy en día, donde las habilidades lingüísticas, interculturales y la experiencia internacional son altamente valoradas.
