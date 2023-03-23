@@ -1,7 +1,7 @@
  #  <p align="center">  Intercambios Estudiantiles <p/> 
  ##  <p align="center">  Beneficios y Experiencias <p/> 
  
-  <p align="center"> Maria Paz Pucciarelli, Juan Marcos Ferrero, Amandine Caffin, Milagros Bravo, Abril Wursten <p/> 
+  <p align="center"> Maria Paz Pucciarelli, Juan Marcos Ferrero, Amandine Caffin, Milagros Bravo, Abril Wursten, Meyerly Diaz Sierra <p/> 
  
   
 <mariapazpucciareli99@gmail.com> – <juanferrerocpbm@gmail.com> – <amandine.caffin@gmail.com> - <milibravo2911@gmail.com> - <abrilwursten99@gmail.com> 
